@@ -6,4 +6,4 @@
 <br>
 ![image](https://github.com/user-attachments/assets/95a68ff4-ab6f-4354-b51e-832c7ddf1ca7)
 <br>
-<img width="310" alt="Bildschirmfoto 2024-09-16 um 21 19 35" src="https://github.com/user-attachments/assets/7577885a-e84e-4666-bb22-b54156c2cb94">
+![image](https://github.com/user-attachments/assets/7577885a-e84e-4666-bb22-b54156c2cb94)
